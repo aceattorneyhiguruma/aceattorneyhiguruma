@@ -3,7 +3,7 @@
   <a href="https://pronouns.cc/lawyers/">pronouns.cc</a> </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/61869f9b-8630-43a0-81e3-7cffc31c339d" width="500"> </p>
+  <a href="https://ibb.co/ZpNwNW6S"><img src="https://i.ibb.co/wFYbYMN7/IMG-0163.jpg" alt="IMG-0163" border="0"></a> </p>
 
 <p align="center">
   even if im the only one, </p>
