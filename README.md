@@ -1,5 +1,5 @@
 <p align="center"> 
-  <a href="https:/cullinggame.straw.page/">strawpage</a> ♡
+  <a href="https://cullinggame.straw.page/">strawpage</a> ♡
   <a href="https://pronouns.cc/lawyers/">pronouns.cc</a> </p>
 
 <p align="center">
